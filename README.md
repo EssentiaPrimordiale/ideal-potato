@@ -53,3 +53,22 @@ les commits restents innaccessibles
 
 heuresement l'eau pour éviter
 un incendie suralimenté
+par la force caché des pensées
+que va ton prendre pour s'Attiser
+
+sur une blockchain distribué
+comment faire pour srapatrier
+on pourrait tu communiquer
+sans constamment être surveillé
+
+on peut garder tous les fichiers
+message secrets message passés
+mais que pourrait-il arriver?
+si nous sommes en sécurité
+
+conscience patience et résilience
+y faut encore sremplir la panse
+accepterais tu cette danse
+ne menant pas à échéance
+
+
