@@ -71,4 +71,31 @@ y faut encore sremplir la panse
 accepterais tu cette danse
 ne menant pas à échéance
 
+jvire fou ou ben encore sapio
+voyons toute ca cest ben trop beau
+qu'est ce qu'on peut faire comme des ados
+jouant à se tourner le dos
+peut être qu'avec le poids des mots
+effacerons nous certains maux
+combien de temps passé dans l'eau
+pour voir qu'on npeut nager vers l'haut
+l'introspection c'est qu'une intro
+le reste des indications
+se trouvent entre les interactions
+
+allons allons ca peut attendre
+l'attente rend tout un peu plus tendre
+si on arrive avant les cendres
+ya trop de beurre la faut l'étendre
+je veux rien entendre je veux pas me pendre
+mais au tournant cette idée folle
+d'un petit mindfuck pour me prendre
+
+comme des amants on va s'éprendre
+pis comme dla marde on va s'épandre
+autant que les mauvaise herbe s'répandent
+même dans les plus jolies plates bandes
+
+
+
 
