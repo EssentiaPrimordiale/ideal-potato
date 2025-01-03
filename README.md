@@ -10,3 +10,13 @@ mais est-ce accessible?
 mais qu'est-ce? 
 répondre un tantinet trop vite
 répondre que c'est intéréssant
+
+ne pas spécifier
+une réponse rapide
+un moyen communicatif
+un moyen créatif
+jouer avec les feux d'artifice
+folie lucide à développer
+projet établi
+en évolution
+
