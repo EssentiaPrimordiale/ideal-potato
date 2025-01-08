@@ -96,6 +96,14 @@ pis comme dla marde on va s'épandre
 autant que les mauvaise herbe s'répandent
 même dans les plus jolies plates bandes
 
+Drette dans le kernel
+Injecté en ribambelle
+Un explorateur douteur
+Un explorateur rêveur
+Puisse-il prendre de l'ampleur
+Se libérer des peurs
+Transmuter sa douleur
+En autre chose que des pleurs
 
 
 
