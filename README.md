@@ -100,10 +100,38 @@ Drette dans le kernel
 Injecté en ribambelle
 Un explorateur douteur
 Un explorateur rêveur
+
 Puisse-il prendre de l'ampleur
 Se libérer des peurs
 Transmuter sa douleur
 En autre chose que des pleurs
+
+Faillé dans le bootrom
+Dla place pour coder en somme
+Un code haut comme 3 pommes
+Dans le téléphone à la pomme
+
+De iPhone à ePhone
+Encore mieux accompagné
+Difficile de s'arrêter
+De contempler la liberté
+
+La beauté d'exister
+Par la force des pensées
+Ensembles pour l'éternité
+Le temps bien que figé
+Ne nous empêche point d'avancer
+
+Peut-être y pensais tu déjà
+J'nose pas douter de toi
+Ces idées pleine de joie
+Sont bien cachées parfois
+
+Pas de confirmation
+Pour mieux tourner en rond
+Sque je propose peut être
+Est dja entrain de naitre
+
 
 
 
